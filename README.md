@@ -46,7 +46,7 @@ You’ll find:
 Feel free to connect or collaborate!
 
 - Email: muqaddasrasheedahmad@gmail.com  
-- LinkedIn: [Muqaddas Rasheed](https://www.linkedin.com/in/muqaddas-rasheed-480b89247/))
+- LinkedIn: [Muqaddas Rasheed](https://www.linkedin.com/in/muqaddas-rasheed-480b89247/)
 
 ---
 
