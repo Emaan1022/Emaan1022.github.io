@@ -45,7 +45,7 @@ You’ll find:
 
 Feel free to connect or collaborate!
 
-- Email: your.email@example.com  
+- Email: muqaddasrasheedahmad@gmail.com  
 - LinkedIn: [linkedin.com/in/yourprofile](https://linkedin.com/in/yourprofile)
 
 ---
